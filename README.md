@@ -1,1 +1,1 @@
-# katalog-pweb
+# katalog-pweb.
